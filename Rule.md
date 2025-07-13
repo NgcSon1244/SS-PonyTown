@@ -32,5 +32,4 @@
 | Lần 5 - Kick       |
 
 --------------------------------------
-
-# Set bd của gr: ✦SS ⋆ 希望之星✦ Tên | Chức
+Set bd của gr: ✦SS ⋆ 希望之星✦ Tên | Chức
