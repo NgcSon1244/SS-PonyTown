@@ -17,7 +17,7 @@
 | Lần 1 - bỏ qua     |
 |--------------------|
 | Lần 2 - bị cắn     |
-| Lần 3 - ra đảo 30p |
+| Lần 3 - ra đảo 30p![is not fun](https://i.imgur.com/DFpeu.jpg) ||
 | Lần 4 - kick       |
 
 --------------------------
@@ -27,7 +27,7 @@
 | Lần 1 - bỏ qua     |
 |--------------------|
 | Lần 2 - bị cắn     |
-| Lần 3 - ra đảo 30p |
+| Lần 3 - ra đảo 30p![again](https://github.com/NgcSon1244/Dolphin_Star/blob/main/Images/t%E1%BA%A3i%20xu%E1%BB%91ng.jpeg) ||
 | Lần 4 - ✂️ chức     |
 | Lần 5 - Kick       |
 
